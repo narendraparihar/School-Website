@@ -1,2 +1,2 @@
-# Shardashishs Higher Secondary school
+# Shardashish Higher Secondary School
 
